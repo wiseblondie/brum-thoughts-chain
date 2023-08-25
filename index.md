@@ -1,3 +1,4 @@
+#### Velkommen!
 
 
 This is the official entrance to Brum's thoughts. 
