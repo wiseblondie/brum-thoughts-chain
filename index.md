@@ -1,5 +1,6 @@
-
+---
 #### Velkommen!
+---
 This is the official entrance to Brum's thoughts. 
 
 Completely free of charge, no pennies needed. 
