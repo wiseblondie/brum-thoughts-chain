@@ -1,5 +1,4 @@
-Welcome! Bienvenue! Добре дошли!
-===============================
+
 
 This is the official entrance to Brum's thoughts. 
 
