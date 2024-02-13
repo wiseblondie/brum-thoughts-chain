@@ -19,10 +19,15 @@ They will be published with a regular irregularity and in whichever language is 
 
 "
 мега
+
 мега всичко
+
 просто много много
+
 *емоджи кроасани - 3 броя*
+
 тва е истината
+
 " - Яна
 
 
