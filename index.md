@@ -17,8 +17,7 @@ They will be published with a regular irregularity and in whichever language is 
 
 "Много обичам да чета BTC като съм в библиотеката и не ми се работи върху есето ми." - Меган
 
-"
-мега
+"мега
 
 мега всичко
 
@@ -26,9 +25,7 @@ They will be published with a regular irregularity and in whichever language is 
 
 *емоджи кроасани - 3 броя*
 
-тва е истината
-
-" - Яна
+тва е истината"  - Яна
 
 
 
