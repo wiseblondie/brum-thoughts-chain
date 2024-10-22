@@ -5,7 +5,7 @@ This is the official entrance to Brum's thoughts.
 
 Completely free of charge, no pennies needed. 
 
-They are edited, however no readability is garanteed. 
+They are edited, however no readability is guaranteed. 
 
 The quality is not assured. 
 
