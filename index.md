@@ -12,6 +12,7 @@ The quality is not assured.
 They will be published with a regular irregularity and in whichever language is more convenient for the writer, the reader experience is not prioritised. 
 
 ---
+
 "In hoc verbo vinces."
 
 - V. Nikolov, Kal. Dec. A.D. MMXXV
